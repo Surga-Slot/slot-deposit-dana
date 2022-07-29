@@ -1,5 +1,7 @@
 # SLOT DEPOSIT DANA
 
-INI MERUPAKAN SLOT DEPOSIT DANA
+INI MERUPAKAN [slot deposit dana](https://surgaslot.vip/).
 
-https://surgaslot.vip/
+
+
+
